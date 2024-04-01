@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **fizaakbar34@gmail.com**
 
-- ⚡ Fun fact **I am funny😅**
+- ⚡ Fun fact **Designing intuitive user interfaces**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
